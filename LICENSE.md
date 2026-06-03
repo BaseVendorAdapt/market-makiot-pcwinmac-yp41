@@ -1,4 +1,4 @@
-# 
+# Oficial market making bot herramientas para Mac OS | Automático market making bot herramientas para PC Windows. Con arbitraje triangular y visualización de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
